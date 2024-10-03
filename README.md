@@ -14,7 +14,8 @@ https://www.gateio24.net/zh/c/stars-carnival-startup?ch=referralprogram&ref=PURE
 app下载
 https://www.gateio24.net/zh/referral/invite/PUREDATA_0_116
 
-欧易     OKX
+欧易OKX
+
 https://www.cnouyi.studio/join/45581678
 
 https://www.utjjxjwfnj.com/join/45581678
